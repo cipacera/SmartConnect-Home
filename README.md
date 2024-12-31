@@ -1,0 +1,1 @@
+SmartConnect Home specializes in providing smart home devices, helping customers enjoy modern and convenient life. Here, you will discover smart products such as lighting systems, automatic door locks, and security sensors. The website is designed intuitively for you to easily learn and shop.
